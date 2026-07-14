@@ -1,1 +1,0 @@
-# adekjamannow.github.io
